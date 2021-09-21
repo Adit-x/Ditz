@@ -1,0 +1,2 @@
+# Ditz
+Ajarin buat sc
